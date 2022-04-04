@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ReveleeUshindi
-- 👀 I’m interested in ...
+- 👀 I’m interested in ... C, java
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... @ruwe3rhema@gmail.com
